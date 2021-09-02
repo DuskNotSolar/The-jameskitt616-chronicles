@@ -1,2 +1,2 @@
 
-my brother from another mother
+to another furry: my brother from another mother
