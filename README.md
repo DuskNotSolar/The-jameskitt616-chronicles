@@ -9,4 +9,4 @@ Platekoala posted a meme in general, fantasycookie gave him a warning and direct
 James then snapped his fingers and sent Platekoala to his pocket dimension of miscellaneous horrors. James then took over Platekoalas matrix account so no one would wonder about a thing. 
 
 James' rage began to overflow. A leaked conversation showed that Henry was planning to ban James from matrix and discord with one shot with plans to stop him from making his way back into the community
-James plotted, but knew this was going to have to be malicious and show Henry who's the boss.
+James plotted, but knew this was going to have to be malicious and show Henry who's the boss. James messaged Henry through one of his many puppet accounts with vague threats, James did this with hundreds of accounts, each account said the same message word for word. Henry was getting concerned and knew that  this was James' doing. It was time for the plan to be put in action.
